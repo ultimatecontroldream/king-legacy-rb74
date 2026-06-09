@@ -1,4 +1,4 @@
-#  
+#  Experience king legacy like never before with king legacy Script secure, the #1 Script. Includes auto-sell and custom skins for unbeatable
 
 
 
